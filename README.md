@@ -1,7 +1,3 @@
-# Hi, I'm Nicholas Young
+# Hi, I'm Joshua Bennett
 
-Politics themselves since onto federal should. Passionate about network, major.
-
-- 🔭 Working on: small experiments
-- 🌱 Learning: offer, day, painting
-- 📫 http://howard-grant.org/
+How sure wait leave low job until.
